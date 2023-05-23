@@ -1,2 +1,2 @@
 #slow down Abel
-#I'm getting alond now
+#I'm getting along now
